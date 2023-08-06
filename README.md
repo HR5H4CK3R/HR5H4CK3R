@@ -1,6 +1,4 @@
-- 👋 Hi, I’m @HR5H4CK3R
-- 👀 I’m interested in dark side.
-- 🌱 I’m currently learning 0 & 1.
+THE WORLD RUNS IN THE DARK SIDE...
   
 
 <!---
